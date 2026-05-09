@@ -1,4 +1,4 @@
-
+Experience blue lock rivals like never before with professional Scripts for blue lock rivals, the #1 Script. Includes speed and instant win for
 
 
 
